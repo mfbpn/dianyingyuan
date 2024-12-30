@@ -1,6 +1,6 @@
 # 电影院机场官网地址
 
-最新地址：[filmtoday.cc](https://my.filmtoday.cc/#/register?code=YJKXai1K)
+最新地址：[filmtoday.cc](https://my.filmtoday.cc/#/register?code=H43jWbkw)
 
 ## 电影院介绍
 
